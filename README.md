@@ -1,2 +1,2 @@
 # Hello-World
-This is my first repository,
+Doing big things, one life to live. Dream big, live big.
